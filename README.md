@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @NirajKumar502
-- 👀 Coding for me is just a way to stay away from this shitty world
+- 👋 Hi, I’m Niraj
 - 💞️ Let's make the world a better place together
 - 📫 Reach me out at guptaniraj1234@gmail.com
 
